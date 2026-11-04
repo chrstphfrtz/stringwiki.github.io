@@ -252,11 +252,11 @@ New Jersey
 
 [SUNY at Stony Brook](http://insti.physics.sunysb.edu/physics/grad_study.htm)
 
+[University at Albany, State University of New York](https://www.albany.edu/physics/string-theory)
+
 [University of Texas at Austin](http://www.ph.utexas.edu/grad.php)
 
 [Texas A&M University](http://www.physics.tamu.edu/)
-
-[University at Albany, State University of New York](https://www.albany.edu/physics/string-theory)
 
 [University of California at Berkeley](http://www.physics.berkeley.edu/)
 
